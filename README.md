@@ -1,0 +1,2 @@
+# PALESTINA
+trabalho de escola
